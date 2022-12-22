@@ -8,4 +8,6 @@ Mods
 - Added new background Music
 - Unlimited Money & Gold
 
-https://www.youtube.com/@graphicsandroid65
+- 📫 How to reach me GraphicsAnd65@gmail.com
+- 📸 Instagram id - graphicsandroid65
+- Youtube Channel - https://www.youtube.com/@graphicsandroid65
